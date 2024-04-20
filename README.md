@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Aiyr
+- 👀 I’m interested in playing Basketball
+- 💞️ I’m looking to collaborate on anything
+- 📫 How to reach me email me at #aiyrthebest@gmail.com
+- ⚡ Fun fact: U mess wit me u mess wit the wrong person
